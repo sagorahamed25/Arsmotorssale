@@ -1,2 +1,0 @@
-# Arsmotorssale
-ARS Motors Sales
